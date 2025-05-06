@@ -58,7 +58,7 @@ I aspire to become a **skilled and forward-thinking software engineer** who not 
 I’m always open to learning, collaborating, and growing.  
 Feel free to connect with me on:
 
-- 💼 [LinkedIn](www.linkedin.com/in/catherine-wangari-mukima)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/catherine-wangari-mukima/)  
 - 💌 Email:mukimacatherine938@gmail.com  
 - 🧠 X:[Catherine Wangari M@C660647](#)
   
